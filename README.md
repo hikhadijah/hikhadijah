@@ -6,5 +6,5 @@ Perkenalkan nama saya **Siti Nur Khadijah**.
 - 💬 Ask me about anything
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/sitinurkhadijaah/)
 - 😄 Pronouns: she / her
-- ⚡ Fun fact: i really like avocado jus and like to explore my skill
+- ⚡ Fun fact: i really like avocado juice and like to explore my skill
 
